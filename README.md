@@ -3,4 +3,4 @@
 
 
 
-O que você ver nesse repositório fica nesse reposit[orio
+O que você ver nesse repositório fica nesse repositório
